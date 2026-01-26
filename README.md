@@ -1,8 +1,11 @@
-## Hi there 👋
-
+## Heiyo! I am Richmond a.k.a multiplewaters or multiple waters
+I am a self-taught graphic designer 🎨 with a little unconventional style. 😜. 
+Currently, I spend a large part of my time creating unique mouse cursors for desktop. 💻
+Explore my work! Have fun!
 <!--
-**multiplewaters/multiplewaters** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
+
+**multiplewaters/multiplewaters** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ...
