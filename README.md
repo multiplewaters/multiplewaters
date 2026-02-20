@@ -1,5 +1,5 @@
 ## Heiyo! I am Richmond a.k.a multiplewaters or multiple waters
-I am a self-taught graphic designer 🎨 with a little unconventional style. 😜. 
+I am a self-taught graphic designer 🎨 with a little unconventional style.😜
 Currently, I spend a large part of my time creating unique mouse cursors for desktop. 💻
 Explore my work! Have fun!
 ## Find more about my work here:
