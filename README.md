@@ -2,8 +2,16 @@
 I am a self-taught graphic designer 🎨 with a little unconventional style. 😜. 
 Currently, I spend a large part of my time creating unique mouse cursors for desktop. 💻
 Explore my work! Have fun!
-## Find more on my official website here:
-https://multiplewaters.com/
+## Find more about my work here:
+My website: https://multiplewaters.com/
+
+DeviantArt Page: https://www.deviantart.com/multiplewaters
+
+Buy Me a Coffee Page: https://www.deviantart.com/multiplewaters
+
+Ko-fi Page: https://www.deviantart.com/multiplewaters
+
+YouTube Page: https://www.youube.com/@multiplewaters
 <!--
 
 
