@@ -3,7 +3,7 @@ I am a self-taught graphic designer 🎨 with a little unconventional style. �
 Currently, I spend a large part of my time creating unique mouse cursors for desktop. 💻
 Explore my work! Have fun!
 ## Find more about my work here:
-My website: https://multiplewaters.com/
+My Website: https://multiplewaters.com/
 
 DeviantArt Page: https://www.deviantart.com/multiplewaters
 
