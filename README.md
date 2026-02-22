@@ -7,9 +7,9 @@ My Website: https://multiplewaters.com/
 
 DeviantArt Page: https://www.deviantart.com/multiplewaters
 
-Buy Me a Coffee Page: https://www.deviantart.com/multiplewaters
+Buy Me a Coffee Page: https://www.buymeacoffee.com/multiplewaters/extras
 
-Ko-fi Page: https://www.deviantart.com/multiplewaters
+Ko-fi Page: https://ko-fi.com/multiplewaters/shop
 <!--
 
 
