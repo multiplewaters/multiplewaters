@@ -1,7 +1,7 @@
 ## Heiyo! I am Richmond a.k.a multiplewaters or multiple waters
-I am a self-taught graphic designer 🎨 with a little unconventional style.😜
-Currently, I spend a large part of my time creating unique mouse cursors for desktop. 💻
-Explore my work! Have fun!
+I am a self-taught graphic designer 🎨 with a little unconventional style.😜 Currently, I spend a large part of my time creating unique mouse cursors for desktop. 💻
+All works are original creations by me. My works are not allowed to be sold, used, uploaded, re-uploaded, modified, distributed without my explicit permission.
+I verify that this GitHub page, my website and my official pages on DeviantArt, Ko-fi, Buy Me A Coffee and any other page I will officially enlist are the only authorized channels for my work. I do not authorize any third-party redistribution. Any site hosting my 'Premium' or 'Special Edition' packs is doing so without a license and is in violation of copyright law.
 ## Find more about my work here:
 My Website: https://multiplewaters.com/
 
